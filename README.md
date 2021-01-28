@@ -1,2 +1,2 @@
-# Translators-with-truly-outstanding-talent
-Got piety, devotion, enthusiasm and respect?  Then maybe you should join our team. See how.
+## Application procedure for “serious and diligent people”
+Open the [discussions page](https://github.com/speakworldlanguages/Translators-with-truly-outstanding-talent/discussions "This way we can know that you exist").
