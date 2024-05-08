@@ -1,4 +1,4 @@
-## Application procedure for “serious and diligent people”
+## Application procedure for “seriously offering valuable input”
 
 ### PLEASE READ THIS FIRST WITH PATIENCE 
 Our target is to produce an almost-unimprovable, near-perfect result.
